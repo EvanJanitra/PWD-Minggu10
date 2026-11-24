@@ -1,0 +1,1 @@
+gak ada tutorial bang
